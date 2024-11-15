@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ruchita Verma
-- 👀 I’m interested in organised life
+- 👀 I’m interested in an organised life
 - 🌱 I’m currently pursuing my graduation
-- 💞️ I’m looking to collaborate on data analytics projects
+- 💞️ I’m looking forward to collaborate on some wonderful data analytics projects
 - 📫 How to reach me ...
 - 😄 Pronouns: she & her
 - ⚡ Fun fact: I proudly wear my Virgo badge with my superpower: turning chaos into color-coded perfection! 🌟
