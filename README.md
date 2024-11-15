@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @richie1809
+- 👋 Hi, I’m Ruchita Verma
 - 👀 I’m interested in organised life
 - 🌱 I’m currently pursuing my graduation
 - 💞️ I’m looking to collaborate on data analytics projects
