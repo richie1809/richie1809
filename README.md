@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @richie1809
 - 👀 I’m interested in organised life
 - 🌱 I’m currently pursuing my graduation
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on data analytics projects
 - 📫 How to reach me ...
 - 😄 Pronouns: she & her
 - ⚡ Fun fact: I proudly wear my Virgo badge with my superpower: turning chaos into color-coded perfection! 🌟
