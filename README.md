@@ -2,7 +2,7 @@
 - 👀 I’m interested in an organised life
 - 🌱 I’m currently pursuing my graduation
 - 💞️ I’m looking forward to collaborate on some wonderful data analytics projects
-- 📫 How to reach me ...
+- 📫 How to reach me ruchitaverma301@gmail.com
 - 😄 Pronouns: she & her
 - ⚡ Fun fact: I proudly wear my Virgo badge with my superpower: turning chaos into color-coded perfection! 🌟
 
